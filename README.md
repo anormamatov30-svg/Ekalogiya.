@@ -1,1 +1,1 @@
-# Ekalogiya.
+# Ekalogiyaa
